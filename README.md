@@ -1,1 +1,1 @@
-![GitHub Streak](https://streak-stats.demolab.com?user=emlk2
+![GitHub Streak](https://streak-stats.demolab.com?user=emlk2)
